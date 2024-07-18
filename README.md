@@ -1,0 +1,1 @@
+# ense-anza_del_concepto_de_ecuacion_desde_el_concepto_de_funcion
